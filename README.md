@@ -2,9 +2,7 @@
 
 2)Temática del Market place:
 
-Vaporstoner ofrece las mejores opciones de vaporizadores herbales y accesorios para consumo de cannabis. 
-algunos de los productos que vendemos son: Vaporizadores herbales, trilladores, papeles para liar, wraps,
-blunts, bongs, filtros, conos pre-enrollados, entre otros.
+Vaporstoner ofrece las mejores opciones de vaporizadores herbales y accesorios para consumo de cannabis, algunos de los productos que se venden son: Vaporizadores herbales, trilladores, papeles para liar, wraps, blunts, bongs, filtros, conos pre-enrollados, entre otros.
 Los vaporizadores herbales son dispositivos para poder consumir canabis ya sea hierba seca,
 cera o aceite, de una manera mucho más sana ya que no se genera combustión.
 
