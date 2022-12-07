@@ -13,7 +13,8 @@ Personas mayores de 18 a 45 años de Colombia, con un nivel de estudio bachiller
 qué disfruta del consumo de cannabis ya sea medicinal o recreacionalmente con un poder adquisitivo medio-alto.
 
 Integrantes del grupo:
-Juan Pablo Avila Castillo administrador logistico y tatuador tengo 29 años soy de Colombia.
+Juan Pablo Avila Castillo administrador logistico y tatuador tengo 29 años soy de Colombia, tengo
+experiencia como administrador y me apasiona el dibujo.
 
 Luis Angel Avila Castillo publicista 30 años de Colombia, me gusta el diseño cuento con experiencia
 en este ambito pues he trabajado para algunas emprezas en la realizacion de sus piezas graficas.
