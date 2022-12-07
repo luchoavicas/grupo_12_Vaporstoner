@@ -8,11 +8,13 @@ blunts, bongs, filtros, conos pre-enrollados, entre otros.
 Los vaporizadores herbales son dispositivos para poder consumir canabis ya sea hierba seca,
 cera o aceite, de una manera mucho más sana ya que no se genera combustión.
 
-Público objetivo
+Público objetivo:
+
 Personas mayores de 18 a 45 años de Colombia, con un nivel de estudio bachillerato o superior,
 qué disfruta del consumo de cannabis ya sea medicinal o recreacionalmente con un poder adquisitivo medio-alto.
 
 Integrantes del grupo:
+
 Juan Pablo Avila Castillo administrador logístico y tatuador, 29 años soy de Colombia, tengo
 experiencia como administrador y me apasiona el dibujo.
 
